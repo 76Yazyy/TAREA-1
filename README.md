@@ -1,0 +1,1 @@
+Me gusta más la tercera opción ya que considero que agregarle css te abre muchas más posibilidades a la hora de crear o darle estilo a tu página web. Las demás resultan sencillas también y siento que las tres son aceptables y correctas.
